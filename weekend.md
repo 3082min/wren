@@ -7,3 +7,6 @@ my plans for tomorrow is to
 6. maybe drink some wine and cheese
 
 Nice to meet ya girl.
+
+Weekend plan: _Relax!Relax! and Relax~!_
+
